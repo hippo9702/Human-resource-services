@@ -1,3 +1,3 @@
 # HR Department in Organization 
 Globalization is on the rise and companies are spreading out all around the world, no longer restricted by geographical barriers. The persons employed in an organization encompasses the values, visions, ideals, norms, working language, systems and habits of a group to work together.
-
+A human resources department is a critical component of employee well-being in any business, no matter how small. HR professionals are often responsible for employee training and orientation, as well as administration of policies relating to compensation, benefits and recruitment of staff. Outsourcing human resources can be done by Shared service HR outsourcing-performance, where only the transaction or administrative elements of HR’s activities are subcontracted to an external supplier. 
